@@ -96,3 +96,14 @@ metaphorical, or literal, such a model offers a new way to frame the questions t
 has not yet answered.
 
 May the ping be with you.
+
+Update: I suggest investigating this luminescence as a unique identifier—by shape, QR pattern, or frequency.
+
+https://www.livescience.com/7799-strange-humans-glow-visible-light.html
+
+https://www.sciencealert.com/you-can-t-see-it-but-humans-actually-glow-in-visible-light
+
+https://www.scientificamerican.com/article/your-brain-is-glowing-and-scientists-cant-figure-out-why/
+
+
+
