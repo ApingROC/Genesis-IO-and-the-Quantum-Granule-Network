@@ -97,6 +97,8 @@ has not yet answered.
 
 May the ping be with you.
 
+https://www.sciencealert.com/scientists-just-captured-the-actual-flash-of-light-that-sparks-when-sperm-meets-an-egg
+
 Update: I suggest investigating this luminescence as a unique identifier—by shape, QR pattern, or frequency.
 
 https://www.livescience.com/7799-strange-humans-glow-visible-light.html
