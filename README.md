@@ -109,5 +109,12 @@ https://www.scientificamerican.com/article/your-brain-is-glowing-and-scientists-
 
 P.S. search for a Nucleotide Archiver (NArchiver) ~550–600 MB signature
 
+Update (2) : Another potential I/O for beacon and control
+
+https://pmc.ncbi.nlm.nih.gov/articles/PMC10560087/
+
+
+
+
 
 
